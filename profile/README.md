@@ -1,2 +1,2 @@
-## Hi there 👋 Welcome to Laredo Web Designs
+## Hi there 👋 Welcome to Doozy Panda Software LLC
 
